@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @inuh12
+- 👀 I’m interested in maths
+- 🌱 I’m currently learning maths
+- 😄 Pronouns: he / him
